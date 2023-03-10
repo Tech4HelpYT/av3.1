@@ -1,5 +1,4 @@
-# BLAZERGAMES
-BlazerGames
+# ASTONISH STORE V3.1
+Astonish V3.1
 
-*Subscribe to Blazer!!!*
-https://youtube.com/c/blazerhm
+Welcome to Astonish V3.1!
